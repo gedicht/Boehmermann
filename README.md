@@ -1,5 +1,6 @@
 # Schmähkritik von Jan Boehmermann
 ## Video online ansehen
+* [erdogan.video](http://erdogan.video/)
 * [Vimeo (Ganze Sendung)](https://vimeo.com/161248183)
 * [LiveLeak](http://www.liveleak.com/view?i=932_1459531349)
 ## Text
