@@ -3,6 +3,7 @@
 * [erdogan.video](http://erdogan.video/)
 * [Vimeo (Ganze Sendung)](https://vimeo.com/161248183)
 * [LiveLeak](http://www.liveleak.com/view?i=932_1459531349)
+
 ## Text
     Sackdoof, feige und verklemmt
     ist Erdoğan, der Präsident.
